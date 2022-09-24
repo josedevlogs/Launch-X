@@ -1,1 +1,1 @@
-Aquí irán toda la info necesaria y notas del programa
+Aquí irán toda la info necesarias y notas del programa
